@@ -1,0 +1,3 @@
+# nonsense
+
+zbbの随笔
